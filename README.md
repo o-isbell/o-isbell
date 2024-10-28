@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @o-isbell
 - 🌱 I’m currently studying coral reef ecology and marine conservation
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate with new colleauges!
 - 📫 How to reach me o.isbell@ucsb.edu or twitter: ok_isbell
 
 <!---
